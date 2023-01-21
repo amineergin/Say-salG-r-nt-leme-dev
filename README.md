@@ -1,1 +1,1 @@
-# Say-salG-r-nt-leme-dev
+# SayisalGoruntuIslemeOdev-dev
